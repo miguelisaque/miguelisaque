@@ -10,6 +10,6 @@
 
 
 
-![](https://tenor.com/pt-BR/view/dog-alarm-alert-gif-13887041539004181192)
+![](https://media1.tenor.com/m/wLius_lwKsgAAAAd/dog-alarm.gif)
 
 
