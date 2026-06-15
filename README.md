@@ -8,8 +8,8 @@ me chamo Miguel Isaque
 - 🗺️ minha diciplina favorita é historia
 - 🚲 ando de bicicleta
 
-
-
+Entre em contato comigo
+miguel.isaque.ribeiro@escola.pr.gov.br
 ![](https://media1.tenor.com/m/wLius_lwKsgAAAAd/dog-alarm.gif)
 
 
